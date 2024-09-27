@@ -4,6 +4,7 @@
 
 ## Education
 M.P.A. Environmental Science and Policy, Columbia University
+
 B.A. History of Art and Architecture, Boston University 
 
 ## Research Interests
